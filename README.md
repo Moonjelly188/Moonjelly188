@@ -1,3 +1,1 @@
-// 🔰 toki a jan ale o , mi @Moonjelly188
-// 🗨️ Discord: auspiciousavery 
-// 🏳️‍⚧️ Pronouns: she/her
+- 🔰 toki a jan ale o , mi @Moonjelly188 - 🗨️ Discord: auspiciousavery - 🏳️‍⚧️ Pronouns: she/her - 
